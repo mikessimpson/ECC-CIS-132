@@ -1,1 +1,1 @@
-Combined CIS 132/Fall 2024 Project 1-1 and 1-2 HTML pages.
+Updated projects pages, including Project 1-3 - 09/28/2024.
